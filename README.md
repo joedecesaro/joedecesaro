@@ -10,3 +10,4 @@
 - 💬 Ask me about environmental compliance
 - 📫 How to reach me: jdecesaro@bren.ucsb.edu
 - 😄 Pronouns: he/him
+- ⚡️ A fun fact about me is that I love to surf 🏄‍♂️
