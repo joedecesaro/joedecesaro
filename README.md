@@ -6,4 +6,4 @@ I have previously worked as an envrionmental engineer in California and have ext
 
 - 📫 How to reach me: jdecesaro@bren.ucsb.edu
 - 😄 Pronouns: he/him
-- 🏄‍♂️ A fun fact about me is that I love to surf 🏄‍♂
+- 🏄‍♂️ A fun fact about me is that I love to surf
